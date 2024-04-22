@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AsheCelesteLucia
 - 👀 I’m interested in Visual Novels, Python, Game Dev, Art.
-- 🌱 I’m currently learning Ren'py
+- 🌱 I’m currently learning Godot and C++
 - 💞️ I’m looking to collaborate on Visual Novels and Video Games.
 - 📫 How to reach me: Discord link in bio.
 
