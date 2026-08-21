@@ -8,4 +8,10 @@ Hiya! I'm Ashe Celeste Lucia (she/her)
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love matcha tea!
 
+Find me in these places:
+- https://ashelucia.com
+- https://www.linkedin.com/in/ashe-lucia/
+- https://ashelucia.itch.io/
+- https://www.pinterest.ca/ashecelestelucia/
+
 Currently located in Seoul, South Korea for work.
