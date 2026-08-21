@@ -12,6 +12,6 @@ Find me in these places:
 - https://ashelucia.com
 - https://www.linkedin.com/in/ashe-lucia/
 - https://ashelucia.itch.io/
-- https://www.pinterest.ca/ashecelestelucia/
+- https://www.pinterest.com/ashecelestelucia/
 
 Currently located in Seoul, South Korea for work.
